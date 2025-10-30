@@ -8,9 +8,9 @@ No to New-liberalism &amp; fascists in America. And, thus, the World.
 From 1984 to currently 2025. 41 years the US governemnt has been corporate and billionaire centric. 
 Almost every new law enacted has been pro-rich, pro-corporate and anti-healthcare, anti-middle class.
 
-The pace of lowering taxes for bilolonaires and corpoate people-hood is astounding.
+The pace of lowering taxes for billionaires and corporate people-hood is astounding.
 
-Trillions has moved from EVERYONE to the greediest .001% just since 1984. Reaganomics is killing 
+Trillions has moved from 99.99% to the greediest .001% just since 1984. Reaganomics is killing 
 democracy. Reagan was worse (so much worse) than Trump. He deregulated big oil, the media, air 
 polluters throughout America and made America filthy and uninhabitable.
 
