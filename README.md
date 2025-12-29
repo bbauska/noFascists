@@ -1,5 +1,5 @@
 # noFascists
-No to New-liberalism &amp; fascists in America. And, thus, the World.
+No to Neo-liberalism &amp; fascists in America. And, thus, the World.
 
 ## Reagan-to-Trump
 
